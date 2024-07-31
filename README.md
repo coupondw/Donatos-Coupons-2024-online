@@ -4,10 +4,10 @@ Alright, let's dive into the world of Donatos coupons and how to snag some kille
 
 Ever found yourself staring at your phone, stomach growling, thinking, "Man, I could really go for a Donatos pizza right now"? But then you see the price and suddenly your wallet's doing the talking? Been there, done that. That's where Donatos coupons come in clutch.
 
-[**Donatos Coupons 50%**  ➣➣ discount Check now
+## [**Donatos Coupons 50%**  ➣➣ discount Check now
 ](https://dynews.net/save-big-with-donatos-coupons/)
 
-[Donatos Coupons 40% ➣➣ discount Check now ](https://dynews.net/dhgate-coupon-codes-how-to-save-money-on-your-purchases/)
+## [Donatos Coupons 40% ➣➣ discount Check now ](https://dynews.net/dhgate-coupon-codes-how-to-save-money-on-your-purchases/)
 
 ### Why Bother with Coupons?
 
