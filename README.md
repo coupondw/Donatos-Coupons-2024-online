@@ -1,5 +1,5 @@
 
-## DONATOS COUPONS 2024: The Saving Big on Your Favorite Pizzas
+## DONATOS COUPONS 2024 || The Saving Big on Your Favorite Pizzas
 
 Ever found yourself staring at your phone, stomach growling, thinking, "Man, I could really go for a Donatos pizza right now"? But then you see the price and suddenly your wallet's doing the talking? Been there, done that. That's where Donatos coupons come in clutch.
 
